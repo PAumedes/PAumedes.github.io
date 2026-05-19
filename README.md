@@ -1,0 +1,1 @@
+Standalone Studio Manager mockup
